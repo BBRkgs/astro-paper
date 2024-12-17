@@ -1,3 +1,6 @@
+https://ketodietblog.com/
+https://www.qiuyumi.com/whois/?domain=ketodietblog.com
+
 # AstroPaper 📄
 
 ![AstroPaper](public/astropaper-og.jpg)
